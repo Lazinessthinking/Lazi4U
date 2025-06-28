@@ -1,1 +1,1 @@
-# Lazi4U
+Chill thôi
